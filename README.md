@@ -7,6 +7,6 @@ Voiceover, video editing and blogging.
 Quiet workspace for recording, clear voice, with fast reliable internet.  
 Available for AI conversation recording and data annotation. 
 
-Location: Durban, South Africa
-Website: PrayerAnswered.online
-Email: sizah.exclusive@gmail.com
+Location: Durban, South Africa.  
+Website: PrayerAnswered.online   
+Email: sizah.exclusive@gmail.com  
