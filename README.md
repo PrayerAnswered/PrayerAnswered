@@ -1,9 +1,10 @@
 Hi, I'm Sizah.
 
-A isiZulu Language Teacher Online and founder of PrayerAnswered.online
+An isiZulu Language Teacher Online and founder of PrayerAnswered.online
 
 Fluent in isiZulu and English
-Quiet workspace for recording, clear voice, with fast reliable internet speed. 
+Voiceover, video editing and blogging
+Quiet workspace for recording, clear voice, with fast reliable internet
 Available for AI conversation recording and data annotation
 
 Location: Durban, South Africa
