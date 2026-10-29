@@ -9,4 +9,4 @@ Available for AI conversation recording and data annotation.
 
 Location: Durban, South Africa.  
 Website: PrayerAnswered.online   
-Email: sizah.exclusive@gmail.com  
+Email: admin@prayeranswered.online  
